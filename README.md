@@ -1,2 +1,0 @@
-# xsate.com
-xsate.com
